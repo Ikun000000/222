@@ -56,3 +56,4 @@
 不好的請走開
 禮多人不怪
 恭喜發財__.
+[I'm an link to the lyrics](https://www.smule.com/song/andy-lau-gong-xi-fa-cai-karaoke-lyrics/8572149_8572149/arrangement)
