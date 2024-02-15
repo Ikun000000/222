@@ -1,7 +1,6 @@
 恭喜發財(劉德華)
 =====
 ![image](https://github.com/Ikun000000/222/assets/159072923/c530de67-11a5-4a75-8f8f-6928aa787709)
-![WechatIMG335](https://github.com/Ikun000000/222/assets/159072923/465dda12-ad70-462b-85fc-d13512723770)
 
 
  * __我恭喜你發財
